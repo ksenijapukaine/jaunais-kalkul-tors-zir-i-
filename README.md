@@ -1,1 +1,1 @@
-# jaunais-kalkul-tors-zir-i-
+# jaunais-kalkulators-zirni-
